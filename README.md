@@ -1,1 +1,1 @@
-delete
+delete code and delete Projects remove third parties and remove and delete all bots bots 
